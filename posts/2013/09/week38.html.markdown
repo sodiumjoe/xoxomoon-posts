@@ -19,7 +19,7 @@ Zeke was very popular in Istanbul and got a lot kisses from strangers:
 
 ![Smooch](https://lh6.googleusercontent.com/-ulZG0g7WOEs/UjaPW2aH3hI/AAAAAAAAOzM/zQQKcL-V6y8/w2154-h1432-no/DSC_3180.JPG)
 
-We visited the [Bophorus](http://en.wikipedia.org/wiki/Bosphorus), which separates Europe from Asia:
+We visited the [Bosphorus](http://en.wikipedia.org/wiki/Bosphorus), which separates Europe from Asia:
 
 ![Bosphorus](https://lh3.googleusercontent.com/-J_rSY6856bc/UjaPi56cx5I/AAAAAAAAO10/qoBPqTrfEHM/w2154-h1432-no/DSC_3325.JPG)
 
