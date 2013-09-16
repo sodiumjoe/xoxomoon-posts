@@ -49,6 +49,6 @@ Unfortunately, he got an ear infection toward the end of the trip, which made th
 
 ![Pediatrician](https://lh3.googleusercontent.com/-aCUA31-jJts/UjaQ-e54mVI/AAAAAAAAPIQ/EIx8FejLwY8/w1074-h1432-no/photo.JPG)
 
-Istanbul is definitely on  of the great cities of the world and the trip rekindled our wanderlust. We can't wait to show Zeke what else the world has to offer.
+Istanbul is definitely one of the great cities of the world and the trip rekindled our wanderlust. We can't wait to show Zeke what else the world has to offer.
 
 [More photos](https://plus.google.com/photos/109995794392976695103/albums/5924079848019628977).
