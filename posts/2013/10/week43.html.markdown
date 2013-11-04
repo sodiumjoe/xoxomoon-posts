@@ -1,10 +1,10 @@
 ---
-title: Week 44
-date: 10/23/2013
+title: Week 43
+date: 10/16/2013
 ---
 
-![Week 44](https://lh4.googleusercontent.com/-k2MCFar_jQY/UmoQBDgQ_3I/AAAAAAAAQqY/PJkPeZM-32U/w1430-h1432-no/Zeek+Week+44+Graphic.jpg)
+![Week 43](https://lh3.googleusercontent.com/-rG8nmjjD9mI/UmoP7lXBlmI/AAAAAAAAQpU/ciMXwYb1xWc/w1430-h1432-no/Zeek+Week+43+Graphic.jpg)
 
-![Kitchen](https://lh4.googleusercontent.com/-svjbU107qrc/UmoRdK7SZ-I/AAAAAAAAQsM/8m5UFNYoHd0/w806-h1432-no/IMG_20131014_185509305.jpg)
+![Zeke](https://lh3.googleusercontent.com/-kEVubDY-uC0/UmoP81xIQcI/AAAAAAAAQpk/TJCnIUXQFao/w952-h1432-no/DSC_4774.JPG)
 
-[More photos](https://plus.google.com/photos/109995794392976695103/albums/5938576662105648321).
+[More photos](https://plus.google.com/photos/109995794392976695103/albums/5938576566386960225).
