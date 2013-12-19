@@ -13,7 +13,7 @@ Merry Christmas and Happy New Year!
 
 ![Zeke with Mama](https://lh3.googleusercontent.com/-bxZ6NTHaoLU/UrKa8FhNlkI/AAAAAAAASUY/2WJfkH_nGC0/w2156-h1432-no/DSC_5832.JPG)
 
-![Zeke triptych](https://lh5.googleusercontent.com/-T1xKj13DMIQ/UrKhV7nS4rI/AAAAAAAASYw/etT6eMtEEoU/w2156-h1432-no/3Zeke.jpg)o
+![Zeke triptych](https://lh5.googleusercontent.com/-T1xKj13DMIQ/UrKhV7nS4rI/AAAAAAAASYw/etT6eMtEEoU/w2156-h1432-no/3Zeke.jpg)
 
 ![Candle](https://lh3.googleusercontent.com/-3QMtQzkizfk/UrKbdTnoQVI/AAAAAAAASXA/VU6p-D9unyM/w2156-h1432-no/DSC_5959.JPG)
 
