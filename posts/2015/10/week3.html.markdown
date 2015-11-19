@@ -1,0 +1,8 @@
+---
+title: Week 3
+date: 10/24/2015
+---
+
+![Telescope](https://lh3.googleusercontent.com/pAtDxVn1NEnuLoZRXwQ1Hy7wjpiEcnHQ5R8NW1bc4Ivr30V4-fZF6UgNL3gYf1LfwJ5VAHa2Ss7NkKtBk3QX6DyInq2KcCtkpo2zViPIs68Dr9bjCqWWXw1gLobiW_yid9BUddA_pXHpuyb5966NXyi_e4hbF73lwVQG_vXnLNJRhpzL5JcytP_rrmzLPaONiKIA55EHTJzCbM-VS5GdPIUzOJUGSc0q-ltItrqzHRW6-hkx-q5fI_dNzx7-9DkJljizJAM6eVSCofaReBU8yoHxABO7rcXQ_5I0pZvs9rvbADJ5LM5FiNjrjHZRJHR1RkOPOpk6mPw0ipWJFR0gzA7o4am_83x-TPBOHYFW2zMLqLrSp6ZfwU7KFhne8b43fagOUxwNxoNJasZEWmEMqx6_XR-ECxbFVzG5UEWBPk8b3NGZaskaIyfE9cGvU5SFLH18DEH70g5wm6uvQg5itloi9aAnH8Q1-vYTnHngBs67QJyxNXTMCxNoZg98OvwmnwbZ3GKWI8mR6o9joBYh-2wbPZiH5Ji6e7zPGXUEYGsu=w624-h618-no)
+
+Bea is a loud grunter! She's got some issues with passing gas (in both directions).

@@ -1,0 +1,8 @@
+---
+title: Week 2
+date: 10/17/2015
+---
+
+![Pizza!](https://lh3.googleusercontent.com/Ze8xE3fvt5cRYsxoivvWtk_op_Ry8OzInPOa_EENmFx1Tth3zN6woEp3wkmVMpbi_6AdsiwitG_kv0o5HFkxp0qY_xdyuiavcJ9eDLWvMjKtbytymTTjL9-kzG30z9yTnNt5t0vYEz7uCY-PfaugM9UpB-egFiWNGl2vM7kQS5Y8ft4w_8uCOUHQGDqjN9YyI11WSzHX-QmK4Q1N__KCBTWDc9XnjmE4frBl4NGZH-dwgFAIwTYlp0eeHCBrhCYFeb7MplAmwV-ZIuXRdLavyl858CZNU8sIl9OcyfuSDya4k68l_BqIJUyrRPnIln46u5T3OAoDKKn6FHZBUQ4fQ362Qdkh4pQEa7UJol6rjUeIyhJbdaLfOZWZvXRugfOeayrY1jmQ5NdRheZ_mtK7CZ9W6_eiOVL6wqdYAAvpMN2Bv72g6OojpmltH391lMDA2rb9oExYDx9sV-hZsNV-v5kGNsNEOkgh39C7YehOvTWOlEFxDNoNLtHvGeM4xEQYzDulCWzuNYDdBEF0lFn9tVkSAeXmRA2x7fwQUf8O6uDW=w624-h618-no)
+
+With Halmeoni gone, we're adjusting to life as a family of four. Bea is mostly sleeping, eating, and pooping.

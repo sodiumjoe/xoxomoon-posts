@@ -1,0 +1,8 @@
+---
+title: Week 4
+date: 10/31/2015
+---
+
+![Little Red Riding Hood](https://lh3.googleusercontent.com/ejWBxyldspMRF1NirVNkT37TtyBvuGL2VFk5NURK8KTTbE_mMbKMeGiJ7lIeZ9pGaH6PJ88awprl57riSTEsD63oWscKjG1GdIGEfkrEXwETC7qvR7yd7Cfg3j69HV0TcidPIY_YEgj8QnAAMe9DAjfgomx52qI6I0CKs8b6aGIsYBXozFJ4cTslc-PfltlSVkDRCNMA91bH-hxmDoGWwqpWCS-McKglFgEiYL6S1gFz40W0Lxz78k8ubc1632_fUa6bmLbICWGNOVLEB-zBOfbMg5TVKiJBZ0QlmhZ_jqlyNA8eCQb5ddCf1CokMwhCe-6ZAjGMbKRrMj-6sQm8uzIHGlOfSpCsd5UMGrkHJn8_RQR6ZnpaoH6yvqzC6Efk5r4FoaEQQjSaq8ybHT4__674N-3geOhcbqaoTT82fePGj2SbODcfeRi41s7rC9jbIBbp5HZYW0qcgyXN0m9SBTjGBhQoiZOjSnUVeKJbhmVozn3J-KT88THW1oPEqipW-lJXH94qLT-0jtva1zPOGdcFaylCf7V9fodLwin300wT=w624-h618-no)
+
+Bea's first Halloween! As Zeke's sidekick, she was Doc Brown from *Back to the Future*.
