@@ -1,0 +1,11 @@
+---
+title: Week 10
+date: 12/12/2015
+---
+
+![Banana peel](https://lh3.googleusercontent.com/vRmsfa6DQSqx85_7dNBRD5Mb-YquWIenkxbyafJyVVdenFR2e24c91Dnt1GzBeVmbmKU9MtnzwOxjGqaDOZJy9vjPzpVbzY_k8jDV8CNk5q6w3Q4FHiXgWCHFkArBQljXzWh-LjH0FmQGSa70Kp3sWtDTe1VAXd9LRJJq2L-k78sufGcA5DZjcQOI_p23EKvmkpEfE8Mx2A9ceeawhl4M2dIymyhxITyaXPnFDMtrEaNsssgL4iOhbeE0Vwqzm7WBOClf_Jcm7zUal2H9ARoIjSs32iSUmSx712eV4Vhd_xinc3mvIlZURVwph2PvztDHKdnSoXE81pHdHxwTWrSuQuwpwNpHXTQgFklcW56uh4jrbGeDEWCjeIGcvvy4Q_2P7ErG06EXtj-AoLV70x6OlF3M_27c2JhUXVsAStAUZ2ET4pKSN1P0EnpPy0iYcsGiq9qAz5Sx-2Nbwrts6dJpuD_gDRm55oteot1TMC7oruVZixR89Ztf5EhwYoJyWNsqXvq396afDQzq7ENsOdVjlpYDAJ3fir74vWzKguNYuh2FnmhwSIRTOJbJCxobXQWQuhFmA=w1422-h1410-no)
+
+Two months!
+
+    Height: 23.62" (93%)
+    Weight: 12 lbs 3.77 oz (73%)

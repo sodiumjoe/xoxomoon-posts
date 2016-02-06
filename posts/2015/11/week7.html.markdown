@@ -1,0 +1,8 @@
+---
+title: Week 7
+date: 11/21/2015
+---
+
+![Hurdles](https://lh3.googleusercontent.com/Rlro0hP_WnOK67kv8PNuTx2S7HwbaHGWxZUk577Dr5fEx405fj04JrPbplp_ATu-Ew81VXPDnzArjla2vVwQLaZR8nnK4md7AYjJz7VmOec1c-ZJk9VFk_sTuWAqF_xCqsQZNqcYRMF1SMh5xi5vhQuf8Zw_7TrUxJPh-39gKB3kRcPmiP4kT_-ZOXxAbPi4caLUpaA7P1xZ2DNv-FMLVV6MAmO__pC9Z_p5M0VtOdXkIXCA4IVRedp2QmZBj7bIEIbWTjbCCAwwOZAXs6HmevNwhSK_Qw7ueW8qj6JaF312hniZ05erQD32qPQaHZV6x7gmivGRsne4isrd9PwBnXj5jwOQsu_bXdAE_Buz79wgV666GgS-dUzz9-K8uTOauBXOerq85xZmF5ACY64mrsnp_0w9Q_0C72GU88L-Y3b4zlmQxH_or6tSJOcCW9FXZAJrKTuqEPewLBk_Qp1gPtG0Rd4C4fNVWeOwyF6yoCATPykkT6PTL9sJwektT8Wu8Fvig_2S5JGUvXyyZm7ziH6G1aRrPfu-1TfsTiOZQOtbwwQ8tt4Mwl189mcwRvXRktyWyQ=w1422-h1410-no)
+
+Bea's doing great with Mama! She's a champion napper in the car seat and in the baby bjorn.
